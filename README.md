@@ -1,6 +1,6 @@
 - 👋 Hi, I'm a lightworker from the Galactic Federation of Milky Way.
 - 👀 I'm into an realistory subject
-- 🌱 I am now studying the kali/linux language.
+- 🌱 I am now studying the cybersecurity
 - 📫 How to reach me - t.me/anonymousE7E or email bradymistic5v5@gmail.com
 
 <!---
